@@ -10,4 +10,5 @@ gostode jogar fifa no xbox
 ![](https://c.tenor.com/Q6z9fuwXLlYAAAAd/tenor.gif)
 
 luiz.babiuk@escola.pr.gov.br
-![](https://tenor.com/pt-BR/view/school-gif-19323102)
+
+![](https://media1.tenor.com/m/rjRoN6bUTeEAAAAd/school.gif)
