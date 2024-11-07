@@ -7,4 +7,4 @@ gosto de pizza suchi
 gosto de mpb, rock, pop rock
 gostode jogar fifa no xbox
 
-![][(https://c.tenor.com/Q6z9fuwXLlYAAAAd/tenor.gif)
+![](https://c.tenor.com/Q6z9fuwXLlYAAAAd/tenor.gif)
