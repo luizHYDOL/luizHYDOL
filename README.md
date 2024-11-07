@@ -1,6 +1,5 @@
 ## Hi there 👋
 
-<!--
 ola meu nome e luiz felipe orizio babiuk
 vou uzar o girhub para presentar meus trabalhos
 eu gosto basquete voley
